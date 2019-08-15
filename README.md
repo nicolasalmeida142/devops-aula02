@@ -1,3 +1,3 @@
-Tom Holland
-Gal Gadot
-Emma Watson
+Tom Holland  
+Gal Gadot  
+Emma Watson  
