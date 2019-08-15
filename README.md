@@ -1,1 +1,3 @@
-# devops-aula02
+Tom Holland
+Gal Gadot
+Emma Watson
