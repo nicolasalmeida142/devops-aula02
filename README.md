@@ -1,3 +1,3 @@
 Tom Holland  
-Gal Gadot  
+Ezra Miller  
 Emma Watson  
